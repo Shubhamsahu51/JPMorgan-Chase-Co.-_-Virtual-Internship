@@ -1,1 +1,1 @@
-# JPMorgan-Chase-Co.-_-Virtual-Internship
+# JPMorgan-Chase-Co._Virtual-Internship
